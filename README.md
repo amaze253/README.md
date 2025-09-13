@@ -12,11 +12,11 @@ We help startups, SMEs, and enterprises grow through ROI-driven campaigns.
 - Experts in Facebook, Instagram, LinkedIn & YouTube ads  
 
 ## Example Campaigns
-- 🚀 Increased local leads by 3x in 90 days  
-- 📈 Reduced ad cost per lead by 40%  
-- 🎯 Scaled e-commerce sales nationwide  
+- Increased local leads by 3x in 90 days  
+- Reduced ad cost per lead by 40%  
+- Scaled e-commerce sales nationwide  
 
 ## Contact
-🌐 Website: [amazeind.in](https://www.amazeind.in/)  
-📞 +91-7719780781  
-📧 contact@amazeind.in
+Website: [amazeind.in](https://www.amazeind.in/)  
+ +91-7719780781  
+ contact@amazeind.in
